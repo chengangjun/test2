@@ -1,1 +1,1 @@
-https://www.mickey.business/api/v1/client/subscribe?token=679fd038a2307629b8ae148c42efd826
+ss://YWVzLTEyOC1nY206MWYxZTcyYzAtNTY2My00ODliLTkyNzEtMmY5MTM5OTc5Y2Vm@zz1.cybervity.top:41373#JP-A%2001
